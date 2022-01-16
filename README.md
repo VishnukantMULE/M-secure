@@ -1,2 +1,2 @@
 # M-secure
-A NEW WORLD OF DIGITAL SECURITY
+eye of protection
